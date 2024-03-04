@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on web site from ipssi school 
 - 📫 You can't reach me -_- 
 - 😄 Pronouns: 
-- ⚡ Fun fact: i don't like China
+- ⚡ Fun fact: i don't like coconuts
 
 
 
