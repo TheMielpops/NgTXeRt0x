@@ -1,9 +1,8 @@
-- 👋 Hi, I’m @NgTXeRt0x aka TheVeryBadGreyHat
+- 👋 Hi, I’m @NgTXeRt0x 
 - 👀 I’m interested in cybersecurity 
-- 🌱 I’m currently learning unity 
+- 🌱 I’m currently learning cybersecurity 
 - 💞️ I’m looking to collaborate on web site from ipssi school 
 - 📫 You can't reach me -_- 
-- 😄 Pronouns: 
 - ⚡ Fun fact: i don't like coconuts
 
 
